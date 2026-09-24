@@ -1,2 +1,0 @@
-# ESPIRITU.QueenieRose
-My-Website
